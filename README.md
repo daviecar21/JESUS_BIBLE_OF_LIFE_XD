@@ -1,2 +1,2 @@
 # JESUS_BIBLE_OF_LIFE_XD
-This is the JESUS_BIBLE_OF_LIFE_XD! Nothing more needs to be said.
+This is the JESUS_BIBLE_OF_LIFE_XD! Nothing more needs to be said. All you have to do is to just run it with a web browser (or anything that runs HTML) and relax in the awesomeness... 
